@@ -1,0 +1,3 @@
+# Manifest — «Moon’s not Alone»
+
+«Moon’s not Alone» is not just about music or aesthetic videos. It is about creating quiet emotional spaces through sound and image. The project exists for those who feel alone even among people. It carries a simple but often forgotten truth: no one is truly alone. Like stars slowly gathering around the Moon, people find one another through silence, sadness, and quiet beauty. «Moon’s not Alone» does not chase noise, trends, or attention; it creates atmosphere — a space where emotions do not need to be explained or justified. Nature, melancholy, stillness, sound, and visual imagery are not escapes here; they are points of connection. This is not entertainment. This is presence. ♱ Psalm 24 
